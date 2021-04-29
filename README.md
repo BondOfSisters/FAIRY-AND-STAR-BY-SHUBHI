@@ -1,1 +1,1 @@
-# Fairy-and-star-by-Shubhi
+# Fairy-and-Stars
